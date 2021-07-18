@@ -1,0 +1,2 @@
+# anjingwibu
+jangan om ampun
